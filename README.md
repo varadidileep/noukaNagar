@@ -1,2 +1,2 @@
 # noukaNagar
-this is the leanring space of Dilip
+this is the leanring space of Dileep
